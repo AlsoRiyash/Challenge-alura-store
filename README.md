@@ -22,7 +22,7 @@ preço
 
 frete
 
-avaliacao da compra
+avaliaçao da compra
 
 ✅ Análises Realizadas
 A análise foi estruturada em várias etapas para obter uma visão completa do desempenho de cada loja:
